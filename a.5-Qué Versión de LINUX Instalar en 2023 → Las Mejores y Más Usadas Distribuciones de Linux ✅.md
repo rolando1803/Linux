@@ -1,0 +1,16 @@
+# Qué Versión de LINUX Instalar en 2023? → Las Mejores y Más Usadas Distribuciones de Linux ✅
+
+![image](https://github.com/rolando1803/Linux/assets/55965131/f04355bd-e883-4834-b0ad-f7c550d76bb8)
+![image](https://github.com/rolando1803/Linux/assets/55965131/5624a9d7-b574-4d68-af48-065def7f75cc)
+![image](https://github.com/rolando1803/Linux/assets/55965131/71aef7ca-a508-41dc-9fad-dfdbf3be3892)
+![image](https://github.com/rolando1803/Linux/assets/55965131/9b873eea-3b13-41b7-afce-0b8911cd6611)
+![image](https://github.com/rolando1803/Linux/assets/55965131/38b907cb-2ee3-4ee8-a6f4-75e19af2d745)
+![image](https://github.com/rolando1803/Linux/assets/55965131/add7b295-8b2b-4248-a425-e54e1c3a4ee3)
+![image](https://github.com/rolando1803/Linux/assets/55965131/bfbd227c-2d0b-43b9-8106-6ad70d2dbb13)
+![image](https://github.com/rolando1803/Linux/assets/55965131/bb180221-6d8d-4e81-900b-6aba51596f3b)
+![image](https://github.com/rolando1803/Linux/assets/55965131/68386691-7f46-4094-bc60-8dac3aab3793)
+![image](https://github.com/rolando1803/Linux/assets/55965131/6ea0af67-d111-4d90-aa85-664dfd745372)
+![image](https://github.com/rolando1803/Linux/assets/55965131/50d16907-a455-4607-9636-35daee5f112a)
+![image](https://github.com/rolando1803/Linux/assets/55965131/fdca87fc-62d1-4fdf-a443-3dd38dd46d48)
+![image](https://github.com/rolando1803/Linux/assets/55965131/612b5794-4677-4204-ab75-500b697316c0)
+![image](https://github.com/rolando1803/Linux/assets/55965131/0d77d8fa-8a3b-4e41-a5fd-fcdf9cba38cc)
